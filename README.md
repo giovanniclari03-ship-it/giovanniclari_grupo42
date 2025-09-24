@@ -1,1 +1,0 @@
-﻿trabajo computacion
